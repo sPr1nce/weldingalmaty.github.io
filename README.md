@@ -1,0 +1,1 @@
+# weldingalmaty.github.io
